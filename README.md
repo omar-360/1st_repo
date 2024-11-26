@@ -1,2 +1,2 @@
-# ki obostha ,
+ki obostha ,
 kaman acan
